@@ -1,0 +1,1 @@
+Google Doc link to the Funcionários relational model: https://docs.google.com/document/d/1JSom-vttcYA-miqOEYZfu8q5HX_dusDqaaMACkF1Iuo/edit?tab=t.0
