@@ -1,0 +1,1 @@
+Google Doc link to the Desafio Normalizacao Pacientes: https://docs.google.com/document/d/1KBSHY_l2LHuoRs25Be12l-Zv-RgJLM7xHEkuNkZF3gE/edit?tab=t.0#heading=h.hp6spv8n48hu
